@@ -1,4 +1,4 @@
-# Дамдинов Андрей
+# Damdinov Andrey
 - Novosibirsk State Technical University
 - School 21
 - Anime & Voleyboll
